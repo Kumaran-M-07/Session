@@ -1,3 +1,3 @@
-How was the session?
+## How was the session? :star:
 
 - Awesome & Pretty Cool! ~ Harsh
