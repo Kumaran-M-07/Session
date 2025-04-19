@@ -1,3 +1,3 @@
 How was the session?
 
-- Pretty Cool! ~ Harsh
+- Awesome & Pretty Cool! ~ Harsh
